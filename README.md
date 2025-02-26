@@ -3,8 +3,6 @@
 This menu has been worked hard on using a Team of 2 Rain and violent1ux 
 Made one of the Decent/Good or whatever you would like to call it.
 
-We Do not skid.. Cause people always be saying other people skid well here is a menu made Fully by Rain and violent1ux
-
 ## credits: 
 yes we are using The ii stupid template but all the code that we used for the mods is NOT made by others.
 
